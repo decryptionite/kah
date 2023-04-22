@@ -2,14 +2,14 @@ If a name doesn't have a reason that means that it's an alt.
 
 
 p3ud - exploits 4/19 <br />
-tcqf - exploits 4/19 
+tcqf - exploits 4/19 <br />
 Cezmicals
 
 prakaee - exploits 4/19 <br />
 chocoleey - exploits 4/19 <br /> 
 3alooo - exploits 4/19 <br />
 GermanicCrasher - exploits 4/19 <br />
-sgoslee - maybe? (4/20 readded, crashed a server...) 
+sgoslee - maybe? (4/20 readded, crashed a server...) <br />
 sgoslee619  <br />
 
 tesla4427 - exploits 4/20 <br />
