@@ -2,6 +2,9 @@ If a name doesn't have a reason that means that it's an alt.
 
 You can tell me any exploiters you'd like to add just send me video proof and the username (dont send a display name.) 
 You can email me here: contact@pvpboys.com
+<br />
+Read this: <a href="info.html">reason</a>
+<br />
 
 
 p3ud - exploits 4/19 <br />
