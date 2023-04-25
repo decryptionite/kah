@@ -27,4 +27,5 @@ banbydoo - exploits 4/20 <br />
 theogboy8 - exploits 4/22 <br />
 AnKRNLuser897 - exploits 4/22 <br />
 Freemonet101 - exploits 4/22 <br />
+BandirueYT2 -  exploits 4/24 <br />
 
