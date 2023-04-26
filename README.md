@@ -33,5 +33,5 @@ Epic_worker414 - exploits 4/24 <br />
 t_echr - exploits 4/25 <br />
 raindrifts - exploits 4/25 <br />
 shadowexeiamgode12 - exploits 4/25 <br />
-ScriptingProgrammer - exploits (is bio literally says all the injectors he uses, why did the staff allow this?) 4/25 <br /> 
+ScriptingProgrammer - exploits (his bio literally says all the injectors he uses, why did the staff allow this?) 4/25 <br /> 
 
