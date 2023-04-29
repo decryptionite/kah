@@ -37,4 +37,6 @@ ScriptingProgrammer - exploits (his bio literally says all the injectors he uses
 jjjuuikjjikkju - exploits 4/25 (crashed my game in the video that inspired this list: https://www.youtube.com/watch?v=O0ttLp2hs7w) <br />
 WAKAS897 - exploits 4/26 <br />
 Damix2131 - exploits 4/28 <br />
-
+ICantGetVerified - exploits 4/29 <br />
+<br />
+It appears I'm blacklisted on every major script and can barely join servers. <br />
