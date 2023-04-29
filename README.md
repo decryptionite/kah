@@ -36,4 +36,5 @@ shadowexeiamgode12 - exploits 4/25 <br />
 ScriptingProgrammer - exploits (his bio literally says all the injectors he uses, why did the staff allow this?) 4/25 <br /> 
 jjjuuikjjikkju - exploits 4/25 (crashed my game in the video that inspired this list: https://www.youtube.com/watch?v=O0ttLp2hs7w) <br />
 WAKAS897 - exploits 4/26 <br />
+Damix2131 - exploits 4/28 <br />
 
