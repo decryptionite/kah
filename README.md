@@ -40,3 +40,7 @@ Damix2131 - exploits 4/28 <br />
 ICantGetVerified - exploits 4/29 <br />
 <br />
 It appears I'm blacklisted on every major script and can barely join servers. <br />
+n0tbsy - exploits 4/29 <br />
+idonthacklol101ns - exploits 4/29 <br />
+JuliusninjaTurtle77 - exploits 4/29 <br />
+
