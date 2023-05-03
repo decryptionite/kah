@@ -46,4 +46,7 @@ idonthacklol101ns - exploits 4/29 <br />
 JuliusninjaTurtle77 - exploits 4/29 <br />
 D5ddyFunds - exploits 4/29 <br />
 erllzqrx - exploits 5/1 <br />
+funnytrolling_1 - exploits 5/2 <br />
+24isab - exploits 5/2 <br />
+lowthemonkey - exploits 5/2 <br />
 
