@@ -14,3 +14,7 @@ Read this: <a href="reason">reason</a>
 <br />
 
 
+<br />
+Document reset. Shoutout to Aprilfoolscrasher for calling me a nigga, he a real one ong.
+
+
