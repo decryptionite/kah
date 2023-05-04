@@ -1,4 +1,4 @@
-<h1>05/02/2023: Because some of you are retarded, I'll say it; this is a troll.</h1> <br />
+<h1>05/03/2023: Because some of you are retarded, I'll say it; this is a troll.</h1> <br />
 Goes to show how easy you can make young script kiddies rage lol. No further edits will be made here. <br />
 -ez troll, Decryptionite.
 <br />
