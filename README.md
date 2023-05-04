@@ -1,3 +1,10 @@
+05/02/2023: Because some of you are retarded, I'll say it; this is a troll. <br />
+Goes to show how easy you can make young script kiddies rage lol. No further edits will be made here. <br />
+-ez troll, Decryptionite.
+<br />
+
+
+
 If a name doesn't have a reason that means that it's an alt.
 
 You can tell me any exploiters you'd like to add just send me video proof and the username (dont send a display name.) 
